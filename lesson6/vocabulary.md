@@ -12,3 +12,10 @@ commercial: thuoc ve thuong mai
 predators: dong vat an thit
 
 aligator: ca xau
+
+insufficient attention
+
+it's high time we had to ... some measures to protect endangered-
+
+
+passenger pigeon: chim bo cau vien khach
