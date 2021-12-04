@@ -1,3 +1,4 @@
+https://docs.google.com/viewerng/viewer?url=https://storage.googleapis.com/comaiphuong-edu-media/document/251246928-1631254134443-covumaiphuongtailieudikembaigiang_lythuyetcotloivecauhoiduoi.pdf
 câu hỏi đuôi là câu hỏi ngắn ử cuối câu trần thuần, ngược với vế câu đằng trước
 
 vế trước là + thì vế đuôi là -
