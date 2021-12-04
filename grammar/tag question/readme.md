@@ -34,4 +34,11 @@ lưu ý:
 	ex: these are 3 oranges, aren't they ?
         9) chủ ngữ là mệnh đề danh từ, dùng it trong câu hỏi đuôi
         ex: what you have said is wrong, isn't it ?
-
+	10) It seems that + mệnh đề A: lấy mệnh đề A làm câu hỏi đuôi
+        ex: it seems that you are right, aren't you ?
+        11) câu đầu là I wish, dùng may trong câu hỏi đuôi
+        ex: I wish to study English, may I ?
+        12) chủ ngữ là one dùng you hoặc one trong câu hỏi đuôi
+        ex: one ca be one's master, can't you /one ?
+        13) câu cảm thán lấy danh từ trogn câu đổi thành đại từ và dùng Is/am/ are tương ứng
+        ex: what a beautiful dress, isn't it ?
