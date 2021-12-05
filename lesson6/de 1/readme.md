@@ -1,1 +1,0 @@
-obtain (v): dat duoc cai gi
