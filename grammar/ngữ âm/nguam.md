@@ -1,0 +1,1 @@
+https://docs.google.com/viewerng/viewer?url=https://storage.googleapis.com/comaiphuong-edu-media/document/384666450-1567649276243-12monophthongsinenglish.pdf
