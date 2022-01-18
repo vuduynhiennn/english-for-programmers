@@ -2,3 +2,6 @@ https://docs.google.com/spreadsheets/d/1hlzTz_coOVagNduK4Up5UBxsAA2dSqADl72jT020
 
 
 luyện tập trạng từ 05/01/2022
+
+18/01/2022
+chossing a career
