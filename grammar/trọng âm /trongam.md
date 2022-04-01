@@ -1,1 +1,0 @@
-https://docs.google.com/viewerng/viewer?url=https://storage.googleapis.com/comaiphuong-edu-media/document/164129057-1629951799456-covumaiphuongtailieudikembaigiang_lythuyetcotloivetrongam.pdf
